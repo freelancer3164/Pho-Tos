@@ -29,7 +29,7 @@ A collections of different ideas
 > # [Suggestions]
 > You might like             [(https://m.youtube.com/@WilliamFamily-1938)]
 > #
-      📩📩 https://private-user-images.githubusercontent.com/74841531/501359651-9b55d1a5-f295-479d-aa62-0024b50c4e83.jpg?jwt=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJpc3MiOiJnaXRodWIuY29tIiwiYXVkIjoicmF3LmdpdGh1YnVzZXJjb250ZW50LmNvbSIsImtleSI6ImtleTUiLCJleHAiOjE3NjA1MTc1OTcsIm5iZiI6MTc2MDUxNzI5NywicGF0aCI6Ii83NDg0MTUzMS81MDEzNTk2NTEtOWI1NWQxYTUtZjI5NS00NzlkLWFhNjItMDAyNGI1MGM0ZTgzLmpwZz9YLUFtei1BbGdvcml0aG09QVdTNC1ITUFDLVNIQTI1NiZYLUFtei1DcmVkZW50aWFsPUFLSUFWQ09EWUxTQTUzUFFLNFpBJTJGMjAyNTEwMTUlMkZ1cy1lYXN0LTElMkZzMyUyRmF3czRfcmVxdWVzdCZYLUFtei1EYXRlPTIwMjUxMDE1VDA4MzQ1N1omWC1BbXotRXhwaXJlcz0zMDAmWC1BbXotU2lnbmF0dXJlPWQwMDNmNzQ4MjRiZmEzYzFhMmU1Y2UzNDg5NTRjNjM4YTZiMTU5MzdlYWI2OWI1NWQzM2U1ZjcwMDkyNWFmZmYmWC1BbXotU2lnbmVkSGVhZGVycz1ob3N0In0.UtzZeENRwBp3bq7OdyFNAHjDo3j1_OFVbLxU3p4JRNk
+      📩📩 
  
 >#
     ## Watch Videos on Youtube
@@ -95,7 +95,7 @@ A collections of different ideas
 >#
 >. # [https://william311964.wordpress.com]
 
-           [findshare/*[*](https://play.google/store/apps/details?id=absi.t
+    [*](https://play.google/store/apps/details?id=absi.t
 
 #
       https://github.com/willget/welcome-greeting/
