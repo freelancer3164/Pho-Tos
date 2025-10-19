@@ -3,8 +3,7 @@
 ## Welcome Greeting
 A collections of different ideas
  > 
-
-    #
+#
     #  [****[*👈👈👈👈  (https://play.google.com/store/apps/details?id=com.android.chrome)*]
 
 
@@ -40,8 +39,8 @@ https://
 > #
 ### Globe Benta App Link [👉👉[▶️DownloadApp◀️👈](https://play.google.com/store/apps/details?id=com.globe.globebenta)]  
 >
-> #
-    # Gcash App Link [👉[🔗💵💳💰🪙📩💌🏧👈DownloadApplication](https://play.google.com/store/apps/details?id=com.globe.gcash.android)🔗👈] 
+####
+# Gcash App Link [👉[🔗💵💳💰🪙📩💌🏧👈DownloadApplication](https://play.google.com/store/apps/details?id=com.globe.gcash.android)🔗👈] 
 
  ##
     # Globe🌐One App Link [👉[DownloadApplication🆗](https://play.google.com/store/apps/details?id=ph.com.globe.globeonesuperapp)]
