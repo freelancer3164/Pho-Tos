@@ -4,26 +4,23 @@
 ## Copy or # Paste
 ## Welcome Greeting
 A collections of different ideas
- > 
-#
-    #  [****[*👈👈👈👈  (https://play.google.com/store/apps/details?id=com.android.chrome)*]
-
-
-    [***## WATCH favorite SHOW[👉[*🖥️🖥️🖥️🖥️🖥️🖥️](https://play.google.com/store/apps/details?id=com.absi.tfctv)*]***] 👈may not always available
+#[****[*👈👈👈👈  (https://play.google.com/store/apps/details?id=com.android.chrome)*]
+## WATCH favorite SHOW[👉[*🖥️🖥️🖥️🖥️🖥️🖥️](https://play.google.com/store/apps/details?id=com.absi.tfctv)*]***] 👈may not always available
 
    
 # 🔜🔜🔜🔜🔜 
 ## 🔹WORDPRESS🔹 
 
 #### Links
-('https://william311964.wordpress.com')
-('https://william3164.wordpress.com')
-('https://gabeandrea.wordpress.com')
-('https://inyam3164mycanva.wordpress.com')
-('https://github.com/@willget)
-('https://williameditor-nsydx.wordpress.com')
-('https://william31647.wordpress.com')
-('https://mancenidosite.wordpress.com')
+#
+@[william311964.wordpress.com
+william3164.wordpress.com
+gabeandrea.wordpress.com
+inyam3164mycanva.wordpress.com
+github.com/@willget
+williameditor-nsydx.wordpress.com
+william31647.wordpress.com
+mancenidosite.wordpress.com]
 
 #
 
