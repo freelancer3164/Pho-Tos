@@ -98,7 +98,8 @@ A collections of different ideas
 🔗https://github.com/willget/welcome-greeting
 
 🔗#⛓️‍💥https://play.google.com/apps/details?=id=org.lds.ldssa
-                     # [*Gospel Library 📖📘(https://play.google.com/store/apps/details?id=org.lds.ldssa)* 
+
+                  #[*Gospel Library 📖📘(https://play.google.com/store/apps/details?id=org.lds.ldssa)*]
 
     ###
 
