@@ -17,11 +17,11 @@ A collections of different ideas
 
 #### Links
 #####
-//#https://william311964.wordpress.com
-//#https://william3164.wordpress.com
-//#https://gabeandrea.wordpress.com
-//#https://inyam3164mycanva.wordpress.com
-//#https://github.com/@willget
+//#(https://william311964.wordpress.com)
+//#(https://william3164.wordpress.com)
+//#(https://gabeandrea.wordpress.com)
+//#(https://inyam3164mycanva.wordpress.com)
+//#(https://github.com/@willget)
 
 //#https://williameditor-nsydx.wordpress.com
 //#https://william31647.wordpress.com
