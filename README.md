@@ -4,8 +4,10 @@
 ## Copy or # Paste
 ## Welcome Greeting
 A collections of different ideas
-#[****[*👈👈👈👈  (https://play.google.com/store/apps/details?id=com.android.chrome)*]
-## WATCH favorite SHOW[👉[*🖥️🖥️🖥️🖥️🖥️🖥️](https://play.google.com/store/apps/details?id=com.absi.tfctv)*]***] 👈may not always available
+
+# 👉👉👉👉👉 *(https://play.google.com/store/apps/details?id=com.android.chrome)*
+
+## WATCH favorite SHOW👉*🖥️🖥️🖥️🖥️🖥️(https://play.google.com/store/apps/details?id=com.absi.tfctv)* 👈may not always available
 
    
 # 🔜🔜🔜🔜🔜 
@@ -44,13 +46,13 @@ A collections of different ideas
  Load Here 
  # 👇
 > #
-### Globe Benta App Link [👉👉[▶️DownloadApp◀️👈](https://play.google.com/store/apps/details?id=com.globe.globebenta)]  
+#####
+>####Globe Benta App Link [👉👉[▶️DownloadApp◀️👈](https://play.google.com/store/apps/details?id=com.globe.globebenta)]  
 >
 ####
-# Gcash App Link [👉[🔗💵💳💰🪙📩💌🏧👈DownloadApplication](https://play.google.com/store/apps/details?id=com.globe.gcash.android)🔗👈] 
+>####Gcash App Link [👉[🔗💵💳💰🪙📩💌🏧👈DownloadApplication](https://play.google.com/store/apps/details?id=com.globe.gcash.android)🔗👈] 
 
- ##
-    # Globe🌐One App Link [👉[DownloadApplication🆗](https://play.google.com/store/apps/details?id=ph.com.globe.globeonesuperapp)]
+>####Globe🌐One App Link [👉[DownloadApplication🆗](https://play.google.com/store/apps/details?id=ph.com.globe.globeonesuperapp)]
  
 # https://YouTube.com/WilliamFamily-1938
 📩https://youtube.com/playlist?list=PLjcUTPaBahP08gU0hXAC3WSIQYuL4F1lQ&si=NWSqoUeVqB4tTmYA   
