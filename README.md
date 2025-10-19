@@ -122,52 +122,58 @@ https://
 
 ####
 [🔗🔠🔠[Chrome🔠](https://play.google.com/store/apps/details?id=com.android.chrome)🔠🔠🔠🔗]
+
+###
  # Play Music *[*Play NOW*🎹🎸🎺](https://open.spotify/track/)*💿
+
 ####
-    # Open *[Spotify Music🎹🎺🎸](https://open.spotify.com/)*💿 
-# Open *[Spotify Music🎸🎸🎺](    https://play.google.com/store/apps/details?id=com.spotify.music      )*💿
-    # Open *[Spotify Music💿](https://www.spotify.com)*💿
+# Open *[Spotify Music🎹🎺🎸*[https://open.spotify.com/)*]💿
+ 
+####
+## Open *[Spotify Music🎸🎸🎺*[(https://play.google.com/store/apps/details?id=com.spotify.music)]* 💿
+####
+# Open *[Spotify Music💿*[(https://www.spotify.com)]* 💿
+
 ####
 # my personal link
+
 ####
 ### Wordpress
 ####
 # *[🌐Personal Private Site🌐](https://william3164.wordpress.com/)*
 
- ####
-> # [▶️⏩⏭️⏯️◀️[⏪⏪⏭️⏭️](https://play.google/store/apps/details?id=instagram.android)⏮️🔼]
+####
+# [▶️⏩⏭️⏯️◀️[⏪⏪⏭️⏭️(https://play.google/store/apps/details?id=instagram.android)⏮️🔼]
 
-
-######
+#
 #       🛍️            🛒
-### 🛍️ Personal Link 🛒🛒 
-######
-# *[Shoplink]***** 
-🔗links
-##### *(https://play.google.com/store/apps/details?id=com.shopee.ph )***
 
+### 🛍️ Personal Link 🛒🛒 
+
+######
+# *Shoplink* **** 
+🔗links
+##### *(https://play.google.com/store/apps/details?id=com.shopee.ph)***
 ####
 
-  >
-   # My Personal Reference
+# My Personal Reference
 🔗https://github.com/willget/welcome-greeting
 
 🔗#⛓️‍💥https://play.google.com/apps/details?=id=org.lds.ldssa
-
-                  #[*Gospel Library 📖📘(https://play.google.com/store/apps/details?id=org.lds.ldssa)*]
+####
+## *Gospel Library* 📖📘[*(https://play.google.com/store/apps/details?id=org.lds.ldssa)*]
 
 ###
+## 🔹[🔹My App🔹](https://play.google.com/store/apps/details?id=egov.app)🔹🔹🔹]
 
->  # [🔹🔹🔹[🔹My App🔹](https://play.google.com/store/apps/details?id=egov.app)🔹🔹🔹]
+#### *[https://william311964.wordpress.com]*
 
-. #
->   #        [https://william311964.wordpress.com]
+[*]
+*[(https://play.google/store/apps/details?id=absi.t]
 
-    [*](https://play.google/store/apps/details?id=absi.t
-
- 🔗https://github.com/willget/Pho-Tos/
-
-    #
-      https://github.com/willget/welcome-greeting/
+>
+🔗 ### *[(https://github.com/willget/Pho-Tos/)]
+####
+ ##[(https://github.com/willget/welcome-greeting/)*]
 
 
