@@ -13,9 +13,21 @@ A collections of different ideas
    
 # 🔜🔜🔜🔜🔜🔹WORDPRESS🔹 
 
-####
-[https://william311964.wordpress.com/2025/04/11/williamfamily-1964-2/?fbclid=IwY2xjawNYWXhleHRuA2FlbQIxMQABHioZmU1JlCjY4lZPDtA7-meLMe6kWqKk9qZT-KQzDp-nfhaTQCcHNjAh13FX_aem_aiJ07ShSSaSrI8yi0TcU4g)     
-    ____________(          )
+#### Links
+######
+https://william311964.wordpress.com
+https://william3164.wordpress.com
+https://gabeandrea.wordpress.com
+https://inyam3164.mycanva.wordpress.com
+https://github.com/@willget
+//
+//
+//
+//
+//
+
+          
+           #___________ ********** 
 
  ####
  Load Here 
@@ -42,20 +54,38 @@ A collections of different ideas
  ### * My YouTube Links  *🔗
 *⛓️‍💥no.1 [*click here-👉 Clip 👈from "Faded"***](https://youtube/clip/UgkxnuxdLHJsQCcrb0TFZnRaZVV5-eopgoCx?si=G9NJ2874i0IeZqe6)*]  
 
-*⛓️‍💥no.2 [click here 👉🌐- Clip👈*](https://youtube.com/clip/UgkxHpKLRjADx3VWUeGvLiNlMbrH06Y7JP3F?si=-38LOzrN9KN_r7pJ)**  ]/
+*⛓️‍💥no.2 [click here 👉🌐- Clip👈*](https://youtube.com/clip/UgkxHpKLRjADx3VWUeGvLiNlMbrH06Y7JP3F?si=-38LOzrN9KN_r7pJ)**  ]//
+//
+//
+//
 ####
 # 🔜🔜🔜Watch 👉 
 ## Youtube
 >
-> 🔗Short👈**[*(https://youtube/shorts/_NinazWF4qw?si=qUPGSSoDIYlMO0jp)*]/
+> 🔗Short👈**[*(https://youtube/shorts/_NinazWF4qw?si=qUPGSSoDIYlMO0jp)*]//
+//
+//
+//
+//
+//
 
     [______________________  [        ]
-> 
+>
+//
+//
+//
+//
     ## [ ## [https://YouTube.com )]🌐]
     [🖥️🖥️🖥️ [Watch Youtube channel*](https://www.youtube/@WilliamFamily-1938)]
->     ####
+//
+//
+//
+
+//     ####
 
 >     ####
+//
+//
     # How's Your Day?
     ####
     ## *[*View Canva]()*🌐
@@ -69,54 +99,58 @@ A collections of different ideas
 >####
     ## Upcoming
 - ## Lyza's- Birthday on Nov 2025
- > ####
-    ## Watch here👉👉 ****[*Lyza's Video](https://github/user-attachments/assets/575e043b-bd1b-42b7-a576-0d7e1e4098fb)*🖥️🖥️🖥️
+ > ##
+#### *Watch* here👉👉 ****[*Lyza's Video](https://github/user-attachments/assets/575e043b-bd1b-42b7-a576-0d7e1e4098fb)*🖥️🖥️🖥️//
+    //
+    //
+    //
   ####
-    ## [***[*📷📸📷Photo Gallery 📸📷📸🔒🔒](https://play.google/store/apps/details?id=com.coloros.gallery3d)****]
+## [***[*📷📸📷Photo Gallery 📸📷📸🔒🔒](https://play.google/store/apps/details?id=com.coloros.gallery3d)****]
+####
+# New Topics
 
->     ####
-    # New Topics
-
-    ####
-          [🔗🔠🔠[Chrome🔠](https://play.google.com/store/apps/details?id=com.android.chrome)🔠🔠🔠🔗]
-    # Play Music *[*Play NOW*🎹🎸🎺](https://open.spotify/track/)*💿
->     ####
+####
+[🔗🔠🔠[Chrome🔠](https://play.google.com/store/apps/details?id=com.android.chrome)🔠🔠🔠🔗]
+ # Play Music *[*Play NOW*🎹🎸🎺](https://open.spotify/track/)*💿
+####
     # Open *[Spotify Music🎹🎺🎸](https://open.spotify.com/)*💿 
-    # Open *[Spotify Music🎸🎸🎺](    https://play.google.com/store/apps/details?id=com.spotify.music      )*💿
+# Open *[Spotify Music🎸🎸🎺](    https://play.google.com/store/apps/details?id=com.spotify.music      )*💿
     # Open *[Spotify Music💿](https://www.spotify.com)*💿
->     ####
-    # my personal link
->     ####
-    ### Wordpress
->     ####
-    # *[🌐Personal Private Site🌐](https://william3164.wordpress.com/)*
+####
+# my personal link
+####
+### Wordpress
+####
+# *[🌐Personal Private Site🌐](https://william3164.wordpress.com/)*
 
- >     ####
->     # [▶️⏩⏭️⏯️◀️[⏪⏪⏭️⏭️](https://play.google/store/apps/details?id=instagram.android)⏮️🔼]
+ ####
+> # [▶️⏩⏭️⏯️◀️[⏪⏪⏭️⏭️](https://play.google/store/apps/details?id=instagram.android)⏮️🔼]
 
 
-    ######
-    #        🛍️            🛒
-    ### 🛍️ Personal Link 🛒🛒 
->     ######
-    # *[Shoplink](https://play.google.com/store/apps/details?id=com.shopee.ph )*
+######
+#       🛍️            🛒
+### 🛍️ Personal Link 🛒🛒 
+######
+# *[Shoplink]***** 
+🔗links
+##### *(https://play.google.com/store/apps/details?id=com.shopee.ph )***
 
-    ####
+####
 
   >
-    # My Personal Reference
+   # My Personal Reference
 🔗https://github.com/willget/welcome-greeting
 
 🔗#⛓️‍💥https://play.google.com/apps/details?=id=org.lds.ldssa
 
                   #[*Gospel Library 📖📘(https://play.google.com/store/apps/details?id=org.lds.ldssa)*]
 
-    ###
+###
 
->     # [🔹🔹🔹[🔹My App🔹](https://play.google.com/store/apps/details?id=egov.app)🔹🔹🔹]
+>  # [🔹🔹🔹[🔹My App🔹](https://play.google.com/store/apps/details?id=egov.app)🔹🔹🔹]
 
 . #
->     .  #        [https://william311964.wordpress.com]
+>   #        [https://william311964.wordpress.com]
 
     [*](https://play.google/store/apps/details?id=absi.t
 
