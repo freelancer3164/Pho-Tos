@@ -22,7 +22,7 @@ A collections of different ideas
  Load Here 
  # 👇
 > #
-# Globe Benta App Link [👉👉[▶️DownloadApp◀️👈](https://play.google.com/store/apps/details?id=com.globe.globebenta)]  
+### Globe Benta App Link [👉👉[▶️DownloadApp◀️👈](https://play.google.com/store/apps/details?id=com.globe.globebenta)]  
 >
 > #
     # Gcash App Link [👉[🔗💵💳💰🪙📩💌🏧👈DownloadApplication](https://play.google.com/store/apps/details?id=com.globe.gcash.android)🔗👈] 
@@ -37,13 +37,13 @@ A collections of different ideas
 >     #
       📩📩 
  
->     #
+> #
 ## Watch Videos on Youtube   
   > #
  ### * My YouTube Links  *🔗
 *⛓️‍💥no.1 [*click here-👉 Clip 👈from "Faded"***](https://youtube/clip/UgkxnuxdLHJsQCcrb0TFZnRaZVV5-eopgoCx?si=G9NJ2874i0IeZqe6)*]  
 
-    *⛓️‍💥no.2 [click here 👉🌐- Clip👈*](https://youtube.com/clip/UgkxHpKLRjADx3VWUeGvLiNlMbrH06Y7JP3F?si=-38LOzrN9KN_r7pJ)**  ]/
+*⛓️‍💥no.2 [click here 👉🌐- Clip👈*](https://youtube.com/clip/UgkxHpKLRjADx3VWUeGvLiNlMbrH06Y7JP3F?si=-38LOzrN9KN_r7pJ)**  ]/
 >            *****[Watch 👉Youtube Short👈*](https://youtube/shorts/_NinazWF4qw?si=qUPGSSoDIYlMO0jp)**]
     ## [ ## [https://YouTube.com )]🌐]
     [🖥️🖥️🖥️ [Watch Youtube channel*](https://www.youtube/@WilliamFamily-1938)]
@@ -54,11 +54,12 @@ A collections of different ideas
     ####
     ## *[*View Canva]()*🌐
 >     ####
-    # My Favorites
-    [*****[*# My Canva Acct*](https://play.google.com/store/apps/details?id=com.canva.editor)****]
+    # My Favorites👇
+    [🔜🔜[*# My Canva Acct*](https://play.google.com/store/apps/details?id=com.canva.editor)****]
 ##
 [🔗*[*# My Canva Acct🔗*](https://play.google.com/store/apps/details?id=com.canva.editor)****]
->     [******[my project*](https://gabeandreaproj4.my.canva.site/hello)*]
+        
+>   [*🔜🔜]*[my project*](https://gabeandreaproj4.my.canva.site/hello)*]       #🔜🔜
 >####
     ## Upcoming
 - ## Lyza's- Birthday on Nov 2025
