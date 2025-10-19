@@ -12,15 +12,13 @@ A collections of different ideas
 ## 🔹WORDPRESS🔹 
 
 #### Links
-#
-@[william311964.wordpress.com
-william3164.wordpress.com
-gabeandrea.wordpress.com
-inyam3164mycanva.wordpress.com
-github.com/@willget
-williameditor-nsydx.wordpress.com
-william31647.wordpress.com
-mancenidosite.wordpress.com]
+## william311964.wordpress.com
+## william3164.wordpress.com
+## gabeandrea.wordpress.com
+## inyam3164mycanva.wordpress.com
+## williameditor-nsydx.wordpress.com
+## william31647.wordpress.com
+## mancenidosite.wordpress.com
 
 #
 
