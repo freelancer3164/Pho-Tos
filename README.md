@@ -45,8 +45,10 @@ A collections of different ideas
 
 *⛓️‍💥no.2 [click here 👉🌐- Clip👈*](https://youtube.com/clip/UgkxHpKLRjADx3VWUeGvLiNlMbrH06Y7JP3F?si=-38LOzrN9KN_r7pJ)**  ]/
 ####
-# 🔜🔜🔜Watch 👉 ## Youtube
->  [Short👈**[*(https://youtube/shorts/_NinazWF4qw?si=qUPGSSoDIYlMO0jp)*]/
+# 🔜🔜🔜Watch 👉 
+## Youtube
+>
+> 🔗Short👈**[*(https://youtube/shorts/_NinazWF4qw?si=qUPGSSoDIYlMO0jp)*]/
 
     [______________________  [        ]
 > 
