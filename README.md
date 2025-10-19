@@ -1,6 +1,6 @@
 # What's your favorite Topic?
 # 👇Copy or #Paste
-    # Welcome Greeting
+# Welcome Greeting
 A collections of different ideas
  > 
 
