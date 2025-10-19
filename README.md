@@ -47,21 +47,25 @@ https://
 
  ##
     # Globe🌐One App Link [👉[DownloadApplication🆗](https://play.google.com/store/apps/details?id=ph.com.globe.globeonesuperapp)]
- >            [https://YouTube.com/WilliamFamily-1938(
-    📩https://youtube.com/playlist?list=PLjcUTPaBahP08gU0hXAC3WSIQYuL4F1lQ&si=NWSqoUeVqB4tTmYA📩Type your message )
->     #             ☝️copy send👉[https://Messenger.com/m.me]
->     # [Suggestions]
->     You might like                 [(https://m.youtube.com/@WilliamFamily-1938)]
->     #
+ 
+# https://YouTube.com/WilliamFamily-1938
+📩https://youtube.com/playlist?list=PLjcUTPaBahP08gU0hXAC3WSIQYuL4F1lQ&si=NWSqoUeVqB4tTmYA   
+📩Type your message 
+## ☝️copy send👉
+## [https://Messenger.com/m.me]
+# [Suggestions]
+## You might like
+ ### (https://m.youtube.com/@WilliamFamily-1938)]
+    #
       📩📩 
  
-> #
+#
 ## Watch Videos on Youtube   
-  > #
- ### * My YouTube Links  *🔗
-*⛓️‍💥no.1 [*click here-👉 Clip 👈from "Faded"***](https://youtube/clip/UgkxnuxdLHJsQCcrb0TFZnRaZVV5-eopgoCx?si=G9NJ2874i0IeZqe6)*]  
+#
+### * My YouTube Links  *🔗
+*⛓️‍💥no.1 *click here-👉 ***Clip*** 👈from "Faded"***](https://youtube/clip/UgkxnuxdLHJsQCcrb0TFZnRaZVV5-eopgoCx?si=G9NJ2874i0IeZqe6)*]  
 
-*⛓️‍💥no.2 [click here 👉🌐- Clip👈*](https://youtube.com/clip/UgkxHpKLRjADx3VWUeGvLiNlMbrH06Y7JP3F?si=-38LOzrN9KN_r7pJ)**  ]//
+*⛓️‍💥no.2 click here 👉🌐- Clip👈*(https://youtube.com/clip/UgkxHpKLRjADx3VWUeGvLiNlMbrH06Y7JP3F?si=-38LOzrN9KN_r7pJ)**  ]//
 //
 //
 //
