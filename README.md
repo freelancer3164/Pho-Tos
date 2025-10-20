@@ -47,12 +47,12 @@ A collections of different ideas
  # 👇
 > #
 #####
->🔗🌐Globe Benta App Link [👉👉[▶️DownloadApp◀️👈](https://play.google.com/store/apps/details?id=com.globe.globebenta)]  
+>🔗🌐Globe Benta App Link 👉👉▶️DownloadApp◀️👈](https://play.google.com/store/apps/details?id=com.globe.globebenta)  
 >
 ####
->🔗🌐Gcash App Link [👉[🔗💵💳💰🪙📩💌🏧👈DownloadApplication](https://play.google.com/store/apps/details?id=com.globe.gcash.android)🔗👈] 
+>🔗🌐Gcash App Link 👉🔗💵💳💰🪙📩💌🏧👈DownloadApplication](https://play.google.com/store/apps/details?id=com.globe.gcash.android)🔗👈] 
 
->🔗🌐Globe🌐One App Link [👉[DownloadApplication🆗](https://play.google.com/store/apps/details?id=ph.com.globe.globeonesuperapp)]
+>🔗🌐Globe🌐One App Link 👉DownloadApplication🆗](https://play.google.com/store/apps/details?id=ph.com.globe.globeonesuperapp)
  
 # https://YouTube.com/WilliamFamily-1938
 📩https://youtube.com/playlist?list=PLjcUTPaBahP08gU0hXAC3WSIQYuL4F1lQ&si=NWSqoUeVqB4tTmYA   
@@ -78,7 +78,7 @@ A collections of different ideas
 # 🔜🔜🔜Watch 👉 
 ## Youtube
 >
-> 🔗Short👈**[*(https://youtube/shorts/_NinazWF4qw?si=qUPGSSoDIYlMO0jp)*]//
+> 🔗Short👈***https://youtube/shorts/_NinazWF4qw?si=qUPGSSoDIYlMO0jp)*]//
 //
 //
 //
@@ -91,8 +91,8 @@ A collections of different ideas
 //
 //
 //
-    ## [ ## [https://YouTube.com )]🌐]
-    [🖥️🖥️🖥️ [Watch Youtube channel*](https://www.youtube/@WilliamFamily-1938)]
+ #### 🌐https://*YouTube.com* 🌐
+ *🖥️🖥️🖥️   *Watch* Youtubechannel *https://www.youtube/@WilliamFamily-1938*
 //
 //
 //
@@ -101,83 +101,97 @@ A collections of different ideas
  ####
 //
 //
-    # How's Your Day?
-    ####
-    ## *[*View Canva]()*🌐
->     ####
-    # My Favorites👇
-    [🔜🔜[*# My Canva Acct*](https://play.google.com/store/apps/details?id=com.canva.editor)****]
-##
-[🔗*[*# My Canva Acct🔗*](https://play.google.com/store/apps/details?id=com.canva.editor)****]
+   # How's Your Day?
+   
+   >####
+   ## 🌐*View Canva *🌐
+> ####
+   # My Favorites👇
+   🔜🔜*# My Canva Acct*](*https://play.google.com/store/apps/details?id=com.canva.editor)* ***
+>##
+>🔗**# My Canva Acct🔗*](*https://play.google.com/store/apps/details?id=com.canva.editor)****]
         
 >   [*🔜🔜]*[my project*](https://gabeandreaproj4.my.canva.site/hello)*]       #🔜🔜
 >####
-    ## Upcoming
-- ## Lyza's- Birthday on Nov 2025
+   >## Upcoming
+- >## Lyza's- Birthday on Nov 2025
  > ##
-#### *Watch* here👉👉 ****[*Lyza's Video](https://github/user-attachments/assets/575e043b-bd1b-42b7-a576-0d7e1e4098fb)*🖥️🖥️🖥️//
+>#### *Watch* here👉👉 *****Lyza's Video](*https://github/user-attachments/assets/575e043b-bd1b-42b7-a576-0d7e1e4098fb*)*🖥️🖥️🖥️
     //
     //
     //
-  ####
-## [***[*📷📸📷Photo Gallery 📸📷📸🔒🔒](https://play.google/store/apps/details?id=com.coloros.gallery3d)****]
-####
-# New Topics
+>####
+>## 📷📸📷Photo Gallery 📸📷📸🔒🔒](*https://play.google/store/apps/details?id=com.coloros.gallery3d)*
+>####
+># New Topics
 
-####
-[🔗🔠🔠[Chrome🔠](https://play.google.com/store/apps/details?id=com.android.chrome)🔠🔠🔠🔗]
+>####
+🔗🔠🔠[Chrome🔠**  *(https://play.google.com/store/apps/details?id=com.android.chrome*🔠🔠🔠🔗
 
-###
- # Play Music *[*Play NOW*🎹🎸🎺](https://open.spotify/track/)*💿
+>####
+>Play Music **Play NOW*🎹🎸🎺* ** https://open.spotify/track* **💿
 
-####
-# Open *[Spotify Music🎹🎺🎸*[https://open.spotify.com/)*]💿
+>####
+>Open *Spotify Music🎹🎺🎸**https://open.spotify.com*]💿
  
-####
-## Open *[Spotify Music🎸🎸🎺*[(https://play.google.com/store/apps/details?id=com.spotify.music)]* 💿
-####
-# Open *[Spotify Music💿*[(https://www.spotify.com)]* 💿
+>####
+>Open *Spotify Music🎸🎸🎺*;*https://play.google.com/store/apps/details?id=com.spotify.music*]* 💿
 
-####
-# my personal link
+>####
+>Open *Spotify Music💿* *https://www.spotify.com)]* 💿
 
-####
-### Wordpress
-####
-# *[🌐Personal Private Site🌐](https://william3164.wordpress.com/)*
+>####
+>## my personal link
 
-####
-# [▶️⏩⏭️⏯️◀️[⏪⏪⏭️⏭️(https://play.google/store/apps/details?id=instagram.android)⏮️🔼]
+>#
+>## Wordpress
 
-#
-#       🛍️            🛒
+>#
+>## 🌐Personal Private Site🌐*
+>*https://william3164.wordpress.com*
 
-### 🛍️ Personal Link 🛒🛒 
+>####
+>###▶️⏩⏭️⏯️◀️[⏪⏪⏭️⏭️(*https://play.google/store/apps/details?id=instagram.android*)⏮️🔼
 
-######
-# *Shoplink* **** 
-🔗links
-##### *(https://play.google.com/store/apps/details?id=com.shopee.ph)***
-####
+>#
+>#       🛍️            🛒
 
-# My Personal Reference
-🔗https://github.com/willget/welcome-greeting
-
-🔗#⛓️‍💥https://play.google.com/apps/details?=id=org.lds.ldssa
-####
-## *Gospel Library* 📖📘[*(https://play.google.com/store/apps/details?id=org.lds.ldssa)*]
-
-###
-## 🔹[🔹My App🔹](https://play.google.com/store/apps/details?id=egov.app)🔹🔹🔹]
-
-#### *[https://william311964.wordpress.com]*
-
-[*]
-*[(https://play.google/store/apps/details?id=absi.t]
-
+>### 🛍️ Personal Link 🛒🛒 
 >
-🔗 ### (https://github.com/willget/Pho-Tos/)
-####
- github.com/willget/welcome-greeting
+>#
+>####*Shoplink* **** 
+🔗links
+>
+>#####*(https://play.google.com/store/apps/details?id=com.shopee.ph)***
+
+>####
+
+>#
+># My Personal Reference
+>####
+>####
+>🔗 *https://github.com/willget/welcome-greeting*
+>
+>#
+>####🔗
+>*https://play.google.com/apps/details?=id=org.lds.ldssa*
+
+>#
+>###*Gospel Library* 📖📘*https://play.google.com/store/apps/details?id=org.lds.ldssa*
+
+>#
+>🌐🔹My App🔹🌐(*https://play.google.com/store/apps/details?id=egov.app*🔹🔹🔹
+
+>#### 
+*https://william311964.wordpress.com*
+
+>## [*]
+*https://play.google/store/apps/details?id=absi.t*
+
+>🔗 ###
+>*(https://github.com/willget/Pho-Tos/)*
+>
+>####
+*github.com/willget/welcome-greeting*
 
 
