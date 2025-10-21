@@ -1,32 +1,32 @@
-# What's your favorite Topic?
+## What's your favorite Topic?
 
-# 👇
-## Copy or # Paste
-## Welcome Greeting
+## 👇
+### Copy or # Paste
+### Welcome Greeting
 A collections of different ideas
 
-# 👉👉👉👉👉 *(https://play.google.com/store/apps/details?id=com.android.chrome)*
+### 👉👉👉👉👉 *(https'://play.google.com/store/apps/details?id=com.android.chrome)*
 
-## WATCH favorite SHOW👉*🖥️🖥️🖥️🖥️🖥️(https://play.google.com/store/apps/details?id=com.absi.tfctv)* 👈may not always available
+#### WATCH favorite SHOW👉*🖥️🖥️🖥️🖥️🖥️(https://play.google.com/store/apps/details?id=com.absi.tfctv)* 👈may not always available
 
    
-# 🔜🔜🔜🔜🔜 
-## 🔹WORDPRESS🔹 
+## 🔜🔜🔜🔜🔜 
+### 🔹WORDPRESS🔹 
 
 #### Links
-## william311964.wordpress.com
+#### william311964.wordpress.com
 >   #### Pages
-## william3164.wordpress.com
+#### william3164.wordpress.com
 >   #### Pages
-## gabeandrea.wordpress.com
+#### gabeandrea.wordpress.com
 >   #### Pages
-## inyam3164mycanva.wordpress.com
+#### inyam3164mycanva.wordpress.com
 >   #### Pages
-## williameditor-nsydx.wordpress.com
+#### williameditor-nsydx.wordpress.com
 >   #### Pages
-## william31647.wordpress.com
+#### william31647.wordpress.com
 >   #### Pages
-## mancenidosite.wordpress.com
+#### mancenidosite.wordpress.com
 >   #### Pages
 
 #
@@ -44,8 +44,8 @@ A collections of different ideas
 
  ####
  Load Here 
- # 👇
-> #
+ ### 👇
+> ###
 #####
 >🔗🌐Globe Benta App Link 👉👉▶️DownloadApp◀️👈](https://play.google.com/store/apps/details?id=com.globe.globebenta)  
 >
@@ -54,38 +54,46 @@ A collections of different ideas
 
 >🔗🌐Globe🌐One App Link 👉DownloadApplication🆗](https://play.google.com/store/apps/details?id=ph.com.globe.globeonesuperapp)
  
-# https://YouTube.com/WilliamFamily-1938
-📩https://youtube.com/playlist?list=PLjcUTPaBahP08gU0hXAC3WSIQYuL4F1lQ&si=NWSqoUeVqB4tTmYA   
-📩Type your message 
-## ☝️copy send👉
-## Messenger.com/m.me
-# Suggestions
-## You might like
+### https://YouTube.com/WilliamFamily-1938
+📩https://youtube.com/playlist?list=PLjcUTPaBahP08gU0hXAC3WSIQYuL4F1lQ&si=NWSqoUeVqB4tTmYA
+                        
+                        '   Search
+                        
+
+
+                        
+ 📩Type your 🔗🔗 
+#### ☝️copy send👉
+
+#### Messenger.com/m.me
+### Suggestions
+#### You might like
 *(https://m.youtube.com/@WilliamFamily-1938)*
            #📩📩 
  
-#
-## Watch Videos on Youtube   
-#
->### * My YouTube Links  *🔗
->*⛓️‍💥no.1 *click here-👉 ***Clip*** 👈from "Faded"***](https://youtube/clip/UgkxnuxdLHJsQCcrb0TFZnRaZVV5-eopgoCx?si=G9NJ2874i0IeZqe6)*  
+###
+#### Watch Videos on Youtube   
+###
+>  ### * My YouTube Links  *🔗
+*⛓️‍💥no.1 *click here-👉 ***Clip*** 👈from "Faded"***](https://youtube/clip/UgkxnuxdLHJsQCcrb0TFZnRaZVV5-eopgoCx?si=G9NJ2874i0IeZqe6)*  
 
->*⛓️‍💥no.2 click here 👉🌐- Clip👈*(https://youtube.com/clip/UgkxHpKLRjADx3VWUeGvLiNlMbrH06Y7JP3F?si=-38LOzrN9KN_r7pJ)*
+*⛓️‍💥no.2 click here 👉🌐- Clip👈*(https://youtube.com/clip/UgkxHpKLRjADx3VWUeGvLiNlMbrH06Y7JP3F?si=-38LOzrN9KN_r7pJ)*
 //
 //
 //
 ####
-# 🔜🔜🔜Watch 👉 
-## Youtube
+### 🔜🔜🔜Watch 👉 
+#### Youtube
 >
-> 🔗Short👈***https://youtube/shorts/_NinazWF4qw?si=qUPGSSoDIYlMO0jp)*]//
+>##### 🔗Shorts
+>*https://youtube/shorts/_NinazWF4qw?si=qUPGSSoDIYlMO0jp)*]//
 //
 //
 //
 //
 //
 
-    [______________________  [        ]
+    ______________________  [        ]
 >
 //
 //
@@ -123,7 +131,7 @@ A collections of different ideas
 >####
 >## 📷📸📷Photo Gallery 📸📷📸🔒🔒](*https://play.google/store/apps/details?id=com.coloros.gallery3d)*
 >####
-># New Topics
+>### New Topics
 
 >####
 🔗🔠🔠[Chrome🔠**  *(https://play.google.com/store/apps/details?id=com.android.chrome*🔠🔠🔠🔗
@@ -143,44 +151,47 @@ A collections of different ideas
 >####
 >## my personal link
 
->#
+>###
 >## Wordpress
 
->#
+>###
 >## 🌐Personal Private Site🌐*
 >*https://william3164.wordpress.com*
 
 >####
 >###▶️⏩⏭️⏯️◀️[⏪⏪⏭️⏭️(*https://play.google/store/apps/details?id=instagram.android*)⏮️🔼
 
->#
+>##
 >#       🛍️            🛒
 
 >### 🛍️ Personal Link 🛒🛒 
 >
 >#
->####*Shoplink* **** 
+>#### *Shoplink* **** 
+
 🔗links
 >
->#####*(https://play.google.com/store/apps/details?id=com.shopee.ph)***
+> ####
+>*https'://play.google.com/store/apps/details?id=com.shopee.ph)***
 
 >####
 
->#
-># My Personal Reference
+>###
+>### My Personal Reference
 >####
 >####
 >🔗 *https://github.com/willget/welcome-greeting*
 >
->#
->####🔗
+>###
+>####
+>🔗
 >*https://play.google.com/apps/details?=id=org.lds.ldssa*
 
->#
->###*Gospel Library* 📖📘*https://play.google.com/store/apps/details?id=org.lds.ldssa*
+>######
+> *Gospel Library* 📖📘*https://play.google.com/store/apps/details?id=org.lds.ldssa*
 
->#
->🌐🔹My App🔹🌐(*https://play.google.com/store/apps/details?id=egov.app*🔹🔹🔹
+>####
+🌐🔹My App🔹🌐(*https://play.google.com/store/apps/details?id=egov.app*🔹🔹🔹
 
 >#### 
 *https://william311964.wordpress.com*
@@ -188,9 +199,9 @@ A collections of different ideas
 >## [*]
 *https://play.google/store/apps/details?id=absi.t*
 
->🔗 ###
->*(https://github.com/willget/Pho-Tos/)*
->
+>### 🔗
+*(https://github.com/willget/Pho-Tos/)*
+
 >####
 *github.com/willget/welcome-greeting*
 
