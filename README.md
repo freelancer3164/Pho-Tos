@@ -7,7 +7,7 @@ A collections of different ideas
 
 ### 👉👉👉👉👉 *(https'://play.google.com/store/apps/details?id=com.android.chrome)*
 
-#### WATCH favorite SHOW👉*🖥️🖥️🖥️🖥️🖥️(https://play.google.com/store/apps/details?id=com.absi.tfctv)* 👈may not always available
+#### WATCH favorite SHOW👉*🖥️🖥️🖥️🖥️🖥️(https'://play.google.com/store/apps/details?id=com.absi.tfctv)* 👈may not always available
 
    
 ## 🔜🔜🔜🔜🔜 
@@ -50,9 +50,9 @@ A collections of different ideas
 >🔗🌐Globe Benta App Link 👉👉▶️DownloadApp◀️👈](https://play.google.com/store/apps/details?id=com.globe.globebenta)  
 >
 ####
->🔗🌐Gcash App Link 👉🔗💵💳💰🪙📩💌🏧👈DownloadApplication](https://play.google.com/store/apps/details?id=com.globe.gcash.android)🔗👈] 
+>🔗🌐Gcash App Link 👉🔗💵💳💰🪙📩💌🏧👈DownloadApplication](https'://play.google.com/store/apps/details?id=com.globe.gcash.android)🔗👈] 
 
->🔗🌐Globe🌐One App Link 👉DownloadApplication🆗](https://play.google.com/store/apps/details?id=ph.com.globe.globeonesuperapp)
+>🔗🌐Globe🌐One App Link 👉DownloadApplication🆗](https''://play.google.com/store/apps/details?id=ph.com.globe.globeonesuperapp)
  
 ### https://YouTube.com/WilliamFamily-1938
 📩https://youtube.com/playlist?list=PLjcUTPaBahP08gU0hXAC3WSIQYuL4F1lQ&si=NWSqoUeVqB4tTmYA
@@ -68,16 +68,16 @@ A collections of different ideas
 #### Messenger.com/m.me
 ### Suggestions
 #### You might like
-*(https://m.youtube.com/@WilliamFamily-1938)*
+*(https'://m.youtube.com/@WilliamFamily-1938)*
            #📩📩 
  
 ###
 #### Watch Videos on Youtube   
 ###
 >  ### * My YouTube Links  *🔗
-*⛓️‍💥no.1 *click here-👉 ***Clip*** 👈from "Faded"***](https://youtube/clip/UgkxnuxdLHJsQCcrb0TFZnRaZVV5-eopgoCx?si=G9NJ2874i0IeZqe6)*  
+*⛓️‍💥no.1 *click here-👉 ***Clip*** 👈from "Faded"***](https'://youtube/clip/UgkxnuxdLHJsQCcrb0TFZnRaZVV5-eopgoCx?si=G9NJ2874i0IeZqe6)*  
 
-*⛓️‍💥no.2 click here 👉🌐- Clip👈*(https://youtube.com/clip/UgkxHpKLRjADx3VWUeGvLiNlMbrH06Y7JP3F?si=-38LOzrN9KN_r7pJ)*
+*⛓️‍💥no.2 click here 👉🌐- Clip👈*(https'://youtube.com/clip/UgkxHpKLRjADx3VWUeGvLiNlMbrH06Y7JP3F?si=-38LOzrN9KN_r7pJ)*
 //
 //
 //
@@ -86,7 +86,7 @@ A collections of different ideas
 #### Youtube
 >
 >##### 🔗Shorts
->*https://youtube/shorts/_NinazWF4qw?si=qUPGSSoDIYlMO0jp)*]//
+>*https'://youtube/shorts/_NinazWF4qw?si=qUPGSSoDIYlMO0jp)*]//
 //
 //
 //
@@ -100,7 +100,7 @@ A collections of different ideas
 //
 //
  #### 🌐https://*YouTube.com* 🌐
- *🖥️🖥️🖥️   *Watch* Youtubechannel *https://www.youtube/@WilliamFamily-1938*
+ *🖥️🖥️🖥️   *Watch* Youtubechannel *https://www.youtube.com/@WilliamFamily-1938*
 //
 //
 //
@@ -114,22 +114,22 @@ A collections of different ideas
    >####
    ## 🌐*View Canva *🌐
 > ####
-   # My Favorites👇
+#### My Favorites👇
    🔜🔜*# My Canva Acct*](*https://play.google.com/store/apps/details?id=com.canva.editor)* ***
->##
+>####
 >🔗**# My Canva Acct🔗*](*https://play.google.com/store/apps/details?id=com.canva.editor)****]
         
->   [*🔜🔜]*[my project*](https://gabeandreaproj4.my.canva.site/hello)*]       #🔜🔜
+>   *🔜🔜]*my project*](https://gabeandreaproj4.my.canva.site/hello)*]       #🔜🔜
 >####
    >## Upcoming
 - >## Lyza's- Birthday on Nov 2025
  > ##
->#### *Watch* here👉👉 *****Lyza's Video](*https://github/user-attachments/assets/575e043b-bd1b-42b7-a576-0d7e1e4098fb*)*🖥️🖥️🖥️
+>#### *Watch* here👉👉 *****Lyza's Video](*https'://github/user-attachments/assets/575e043b-bd1b-42b7-a576-0d7e1e4098fb*)*🖥️🖥️🖥️
     //
     //
     //
 >####
->## 📷📸📷Photo Gallery 📸📷📸🔒🔒](*https://play.google/store/apps/details?id=com.coloros.gallery3d)*
+>## 📷📸📷Photo Gallery 📸📷📸🔒🔒](*https'://play.google/store/apps/details?id=com.coloros.gallery3d)*
 >####
 >### New Topics
 
@@ -137,7 +137,7 @@ A collections of different ideas
 🔗🔠🔠[Chrome🔠**  *(https://play.google.com/store/apps/details?id=com.android.chrome*🔠🔠🔠🔗
 
 >####
->Play Music **Play NOW*🎹🎸🎺* ** https://open.spotify/track* **💿
+>Play Music **Play NOW*🎹🎸🎺* ** https://open.spotify.com/track* **💿
 
 >####
 >Open *Spotify Music🎹🎺🎸**https://open.spotify.com*]💿
@@ -151,7 +151,7 @@ A collections of different ideas
 >####
 >## my personal link
 
->###
+>####
 >## Wordpress
 
 >###
@@ -159,14 +159,15 @@ A collections of different ideas
 >*https://william3164.wordpress.com*
 
 >####
->###▶️⏩⏭️⏯️◀️[⏪⏪⏭️⏭️(*https://play.google/store/apps/details?id=instagram.android*)⏮️🔼
+>###
+>▶️⏩⏭️⏯️◀️[⏪⏪⏭️⏭️(*https'://play.google/store/apps/details?id=instagram.android*)⏮️🔼
 
 >##
 >#       🛍️            🛒
 
 >### 🛍️ Personal Link 🛒🛒 
 >
->#
+>#####
 >#### *Shoplink* **** 
 
 🔗links
@@ -181,26 +182,24 @@ A collections of different ideas
 >####
 >####
 >🔗 *https://github.com/willget/welcome-greeting*
->
->###
->####
->🔗
->*https://play.google.com/apps/details?=id=org.lds.ldssa*
+####
+>### 🔗
+*https'://play.google.com/apps/details?=id=org.lds.ldssa*
 
 >######
-> *Gospel Library* 📖📘*https://play.google.com/store/apps/details?id=org.lds.ldssa*
+ *Gospel Library* 📖📘*https'://play.google.com/store/apps/details?id=org.lds.ldssa*
 
 >####
-🌐🔹My App🔹🌐(*https://play.google.com/store/apps/details?id=egov.app*🔹🔹🔹
+🌐🔹My App🔹🌐*https'://play.google.com/store/apps/details?id=egov.app*🔹🔹🔹
 
 >#### 
-*https://william311964.wordpress.com*
+*https'://william311964.wordpress.com*
 
->## [*]
-*https://play.google/store/apps/details?id=absi.t*
+>#### [*]
+*https'://play.google/store/apps/details?id=absi.t*
 
 >### 🔗
-*(https://github.com/willget/Pho-Tos/)*
+*https'://github.com/willget/Pho-Tos*
 
 >####
 *github.com/willget/welcome-greeting*
