@@ -47,7 +47,7 @@ A collections of different ideas
  ### 👇
 > ###
 #####
->🔗🌐Globe Benta App Link 👉👉▶️DownloadApp◀️👈](https://play.google.com/store/apps/details?id=com.globe.globebenta)  
+>🔗🌐Globe Benta App Link 👉👉▶️DownloadApp◀️👈](https'://play.google.com/store/apps/details?id=com.globe.globebenta)  
 >
 ####
 >🔗🌐Gcash App Link 👉🔗💵💳💰🪙📩💌🏧👈DownloadApplication](https'://play.google.com/store/apps/details?id=com.globe.gcash.android)🔗👈] 
@@ -55,7 +55,7 @@ A collections of different ideas
 >🔗🌐Globe🌐One App Link 👉DownloadApplication🆗](https''://play.google.com/store/apps/details?id=ph.com.globe.globeonesuperapp)
  
 ### https://YouTube.com/WilliamFamily-1938
-📩https://youtube.com/playlist?list=PLjcUTPaBahP08gU0hXAC3WSIQYuL4F1lQ&si=NWSqoUeVqB4tTmYA
+📩https'://youtube.com/playlist?list=PLjcUTPaBahP08gU0hXAC3WSIQYuL4F1lQ&si=NWSqoUeVqB4tTmYA
                         
                         '   Search
                         
@@ -100,7 +100,7 @@ A collections of different ideas
 //
 //
  #### 🌐https://*YouTube.com* 🌐
- *🖥️🖥️🖥️   *Watch* Youtubechannel *https://www.youtube.com/@WilliamFamily-1938*
+ *🖥️🖥️🖥️   *Watch* Youtubechannel *https'://www.youtube.com/@WilliamFamily-1938*
 //
 //
 //
@@ -115,11 +115,11 @@ A collections of different ideas
    ## 🌐*View Canva *🌐
 > ####
 #### My Favorites👇
-   🔜🔜*# My Canva Acct*](*https://play.google.com/store/apps/details?id=com.canva.editor)* ***
+   🔜🔜*# My Canva Acct*](*https'://play.google.com/store/apps/details?id=com.canva.editor)* ***
 >####
->🔗**# My Canva Acct🔗*](*https://play.google.com/store/apps/details?id=com.canva.editor)****]
+>🔗**# My Canva Acct🔗*](*https'://play.google.com/store/apps/details?id=com.canva.editor)****]
         
->   *🔜🔜]*my project*](https://gabeandreaproj4.my.canva.site/hello)*]       #🔜🔜
+>   *🔜🔜]*my project*](https'://gabeandreaproj4.my.canva.site/hello)*]       #🔜🔜
 >####
    >## Upcoming
 - >## Lyza's- Birthday on Nov 2025
@@ -134,19 +134,19 @@ A collections of different ideas
 >### New Topics
 
 >####
-🔗🔠🔠[Chrome🔠**  *(https://play.google.com/store/apps/details?id=com.android.chrome*🔠🔠🔠🔗
+🔗🔠🔠[Chrome🔠**  *(https'://play.google.com/store/apps/details?id=com.android.chrome*🔠🔠🔠🔗
 
 >####
->Play Music **Play NOW*🎹🎸🎺* ** https://open.spotify.com/track* **💿
+>Play Music **Play NOW*🎹🎸🎺* ** https'://open.spotify.com/track* **💿
 
 >####
->Open *Spotify Music🎹🎺🎸**https://open.spotify.com*]💿
+>Open *Spotify Music🎹🎺🎸**https'://open.spotify.com*]💿
  
 >####
->Open *Spotify Music🎸🎸🎺*;*https://play.google.com/store/apps/details?id=com.spotify.music*]* 💿
+>Open *Spotify Music🎸🎸🎺*;*https'://play.google.com/store/apps/details?id=com.spotify.music*]* 💿
 
 >####
->Open *Spotify Music💿* *https://www.spotify.com)]* 💿
+>Open *Spotify Music💿* *https'://www.spotify.com)]* 💿
 
 >####
 >## my personal link
@@ -156,7 +156,7 @@ A collections of different ideas
 
 >###
 >## 🌐Personal Private Site🌐*
->*https://william3164.wordpress.com*
+>*https'://william3164.wordpress.com*
 
 >####
 >###
