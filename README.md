@@ -129,12 +129,14 @@ A collections of different ideas
     //
     //
 >####
->## 📷📸📷Photo Gallery 📸📷📸🔒🔒](*https'://play.google/store/apps/details?id=com.coloros.gallery3d)*
+>## 📷📸📷Photo Gallery 📸📷📸🔒
+>*https'://play.google/store/apps/details?id=com.coloros.gallery3d)*
 >####
 >### New Topics
 
 >####
-🔗🔠🔠[Chrome🔠**  *(https'://play.google.com/store/apps/details?id=com.android.chrome*🔠🔠🔠🔗
+🔗🔠🔠Chrome🔠**
+*https'://play.google.com/store/apps/details?id=com.android.chrome*🔠🔠🔠🔗
 
 >####
 >Play Music **Play NOW*🎹🎸🎺* ** https'://open.spotify.com/track* **💿
@@ -173,7 +175,7 @@ A collections of different ideas
 🔗links
 >
 > ####
->*https'://play.google.com/store/apps/details?id=com.shopee.ph)***
+>*https'*://play.google.com/store/apps/details?id=com.shopee.ph
 
 >####
 
@@ -181,7 +183,7 @@ A collections of different ideas
 >### My Personal Reference
 >####
 >####
->🔗 *https://github.com/willget/welcome-greeting*
+>🔗 *https'://github.com/willget/welcome-greeting
 ####
 >### 🔗
 *https'://play.google.com/apps/details?=id=org.lds.ldssa*
@@ -199,9 +201,9 @@ A collections of different ideas
 *https'://play.google/store/apps/details?id=absi.t*
 
 >### 🔗
-*https'://github.com/willget/Pho-Tos*
+*https'://'*github.com*'/willget/Pho-Tos
 
 >####
-*github.com/willget/welcome-greeting*
+github.com/ *willget* /welcome-greeting
 
 
