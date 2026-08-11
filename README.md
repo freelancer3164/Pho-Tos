@@ -17,19 +17,16 @@
 🔒[**`designediting.my.canva.site/collections2026`**](https://designediting.my.canva.site/collections2026)
 
 
+🔒[**`https://designediting.my.canva.site/subscription`**](https://designediting.my.canva.site/subscription)
 
-##### 
-     `https://designediting.my.canva.site/subscription`
-##### 
-    `https://designediting.my.canva.site/links`
+ 
+🔒[**`https://designediting.my.canva.site/links`**](https://designediting.my.canva.site/Links)
 
-# `Welcome`
-A collections of different ideas
+# [**`Welcome`**](A collections of different ideas)
 
-### 👉👉👉👉👉 
+# 👉👉👉👉👉 
 
-#### WATCH 
-<img width="2448" height="2448" alt="1000014330" src="https://github.com/user-attachments/assets/d742b286-3fbd-4b53-88fa-536ea5987791" />
+# [**`WATCH`**](<img width="2448" height="2448" alt="1000014330" src="https://github.com/user-attachments/assets/d742b286-3fbd-4b53-88fa-536ea5987791" />)
 
    
 
