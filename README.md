@@ -19,7 +19,7 @@
 [**`🔒https://designediting.my.canva.site/subscription`**](https://designediting.my.canva.site/subscription)
 
  
-[**`🔒https://designediting.my.canva.site/links`**](https://designediting.my.canva.site/Links)
+[**`🔒https://designediting.my.canva.site/links`**](https://designediting.my.canva.site/railway-trip)
 
 # **`Welcome`**
 A collections of different ideas
@@ -28,7 +28,7 @@ A collections of different ideas
 # 👉👉👉👉👉 
 
 
-# [**`🔒WATCH`**](https://github.com/user-attachments/assets/d742b286-3fbd-4b53-88fa-536ea5987791" )
+# [**`🔒WATCH`** SHORTS ](https://youtube.com/shorts/ng0ahL9LDE8?si=kKxmbEMXLMc95e7A)
 
 
 
