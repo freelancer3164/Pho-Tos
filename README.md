@@ -1,25 +1,25 @@
 
-###### [**`🔒designediting.my.canva.site/designmusic`**](https://GitHub.com)
+###### 🔒[**`designediting.my.canva.site/designmusic`**](https://GitHub.com)
 
 
-[**`🔒designediting.my.canva.site/design`**](https://designediting.my.canva.site/design)
+🔒[**`designediting.my.canva.site/design`**](https://designediting.my.canva.site/design)
 
 
-[**`🔒designediting.my.canva.site/designmusic`**](https://designediting.my.canva.site/designmusic)
+🔒[**`designediting.my.canva.site/designmusic`**](https://designediting.my.canva.site/designmusic)
 
-### [**`🔒Design Editing 917`**](**`YouTube.com`**)
+### 🔒[**`Design Editing 917`**](**`YouTube.com`**)
 
-[**`🔒YouTube/@designediting.917`**](https://www.youtube.com/@designediting.917)
-
-
-
-[**`🔒designediting.my.canva.site/collections2026`**](https://designediting.my.canva.site/collections2026)
+🔒[**`YouTube/@designediting.917`**](https://www.youtube.com/@designediting.917)
 
 
-[**`🔒https://designediting.my.canva.site/subscription`**](https://designediting.my.canva.site/subscription)
+
+🔒[**`designediting.my.canva.site/collections2026`**](https://designediting.my.canva.site/collections2026)
+
+
+🔒[**`https://designediting.my.canva.site/subscription`**](https://designediting.my.canva.site/subscription)
 
  
-[**`🔒https://designediting.my.canva.site/links`**](https://designediting.my.canva.site/railway-trip)
+🔒[**`https://designediting.my.canva.site/links`**](https://designediting.my.canva.site/railway-trip)
 
 # **`Welcome`**
 A collections of different ideas
