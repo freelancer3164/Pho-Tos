@@ -1,20 +1,20 @@
 # [`PayPal Link`](https://www.sandbox.paypal.com/)
 
-###### 🔒[**`Freelance-Editing`**](https://GitHub.com)
+###### [**`🔒Freelance-Editing`**](https://GitHub.com)
 
 
 [**`🔒VIDEOS/IMAGES`**](https://designediting2026.my.canva.site/photos)
 
 
-🔒[**`designediting.my.canva.site/designmusic`**](https://designediting.my.canva.site/designmusic)
+[**`🔒DESIGN MUSIC`**](https://designediting.my.canva.site/designmusic)
 
-### 🔒[**`Design Editing 917`**](**`YouTube.com`**)
+### [**`🔒Design Editing 917`**](**`YouTube.com`**)
 
-🔒[**`YouTube/@designediting.917`**](https://www.youtube.com/@designediting.917)
+🔒[**`YouTube`**](https://www.youtube.com/@designediting.917)
 
 
 
-🔒[**`designediting.my.canva.site/collections2026`**](https://designediting.my.canva.site/collections2026)
+🔒[**`MUSIC COLLECTIONS`**](https://designediting.my.canva.site/collections2026)
 
 
 🔒[**`https://designediting.my.canva.site/subscription`**](https://designediting.my.canva.site/subscription)
