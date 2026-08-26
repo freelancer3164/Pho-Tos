@@ -1,9 +1,9 @@
-# [`PayPal Link`](https://www.sandbox.paypal.com/ncp/payment/8XU4AM5VSFG86)
+# [`PayPal Link`](https://www.sandbox.paypal.com/)
 
-###### 🔒[**`designediting.my.canva.site/designmusic`**](https://GitHub.com)
+###### 🔒[**`Freelance-Editing`**](https://GitHub.com)
 
 
-🔒[**`designediting.my.canva.site/design`**](https://designediting.my.canva.site/design)
+[**`🔒VIDEOS/IMAGES`**](https://designediting2026.my.canva.site/photos)
 
 
 🔒[**`designediting.my.canva.site/designmusic`**](https://designediting.my.canva.site/designmusic)
