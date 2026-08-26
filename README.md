@@ -17,10 +17,10 @@
 🔒[**`MUSIC COLLECTIONS`**](https://designediting.my.canva.site/collections2026)
 
 
-🔒[**`https://designediting.my.canva.site/subscription`**](https://designediting.my.canva.site/subscription)
+🔒[*`**]()
 
  
-🔒[**`https://designediting.my.canva.site/links`**](https://designediting.my.canva.site/railway-trip)
+🔒[**`RAILWAY-- TRIP`**](https://designediting.my.canva.site/railway-trip)
 
 # **`Welcome`**
 A collections of different ideas
