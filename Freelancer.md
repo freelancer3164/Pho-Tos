@@ -29,13 +29,13 @@ A collections of different ideas
 # 👉👉👉👉👉 
 
 
-# [**`🔒WATCH`** SHORTS ](https://youtube.com/shorts/ng0ahL9LDE8?si=kKxmbEMXLMc95e7A)
+# [**`🔒WATCH`** SHORTS ](https://youtube.com/@FreelancerGitHub)
 
 
 
 [**`Images`**](https://private-user-images.githubusercontent.com/74841531/)
    
-# [**`PAYPAL`**](https://www.sandbox.paypal.com)
+# [**`PAYPAL`**](https://designediting.my.canva.site/socialmedia/
 
 
 
