@@ -1,4 +1,4 @@
 ---
-# [*`Freelancer@GitHub`*](*https://designediting.my.canva.site/socialmedia*)
+# [*`Freelancer@GitHub`*](https://designediting.my.canva.site/socialmedia)
 
 
