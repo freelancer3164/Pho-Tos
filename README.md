@@ -8,7 +8,7 @@
 
 [**`🔒DESIGN MUSIC`**](https://designediting.my.canva.site/designmusic)
 
-### [**`🔒Design Editing 917`**](**`YouTube.com`**)
+### [**`🔒Design Editing 917`**](**`YouTube.com/@FreelancerGitHub**)
 
 🔒[**`YouTube`**](https://www.youtube.com/@FreelancerGitHub)
 
