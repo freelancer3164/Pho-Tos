@@ -1,4 +1,4 @@
-# [`PayPal Link`](https://www.sandbox.paypal.com/)
+# [`PayPal Link`](https://designediting.my.canva.site/socialmedia)
 
 ###### [**`🔒Freelance-Editing`**](https://GitHub.com)
 
