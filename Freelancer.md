@@ -35,7 +35,7 @@ A collections of different ideas
 
 [**`Images`**](https://private-user-images.githubusercontent.com/74841531/)
    
-# [**`PAYPAL`**](https://designediting.my.canva.site/socialmedia/
+# [**`PAYPAL`**](https://designediting.my.canva.site/socialmedia/)
 
 
 
